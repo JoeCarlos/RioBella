@@ -34,7 +34,7 @@ Durável e estilosa, ideal para explorar o mundo.
 
 ## Entre em contato
 
-📍 **Endereço:** Rua das Flores, 123 - Rio de Janeiro, RJ  
+📍 **Endereço:** Rua das Flores, 123 - Rio de Janeiro, RJ  ss
 📞 **Telefone:** (21) 9999-8888  
 📧 **E-mail:** contato@riobella.com  
 
